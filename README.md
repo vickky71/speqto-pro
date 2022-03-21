@@ -1,0 +1,1 @@
+# speqto-pro
